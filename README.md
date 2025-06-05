@@ -2,7 +2,7 @@
 
 <br/>
 
-##  Truy cập 👉 [TẠI ĐÂY](https://tongtrankien1605.github.io/) 👈
+##  Truy cập Bio 👉 [TẠI ĐÂY](https://tongtrankien1605.github.io/) 👈
 
 
 
