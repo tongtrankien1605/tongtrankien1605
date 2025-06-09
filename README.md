@@ -2,7 +2,7 @@
 
 <br/>
 
-## 👉 Cùng nhau khám phá những trò con bò cực kỳ ... ảo ma canada Shizuka [TẠI ĐÂY](https://tongtrankien1605.github.io/) !
+## 👉 Cùng nhau khám phá những trò con bò, ảo ma Shizuka [TẠI ĐÂY](https://tongtrankien1605.github.io/) nhé !
 
 <br/>
 
